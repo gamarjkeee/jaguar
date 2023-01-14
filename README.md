@@ -1,1 +1,1 @@
-https://gamarjkeee.github.io/jaguar/home.html
+https://gamarjkeee.github.io/jaguar/index.html
