@@ -1,1 +1,1 @@
-https://gamarjkeee.github.io/jaguar_last_vercion/
+https://gamarjkeee.github.io/jaguar/home.html
